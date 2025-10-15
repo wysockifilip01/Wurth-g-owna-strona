@@ -1,0 +1,1 @@
+# Wurth-g-owna-strona
